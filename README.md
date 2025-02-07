@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Avery
-- 👀 I’m interested in gaming, reading, crochet/knitting, and especially coding
+- 👀 I’m interested in gaming, reading, crochet/knitting, cryptids, and bugs
 - 🌱 I’m currently learning how to create a website as well as developing video games
 - 💞️ I’m looking to collaborate on video games once I start
 - 😄 Pronouns: They/Them
